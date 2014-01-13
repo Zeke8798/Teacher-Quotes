@@ -1,4 +1,4 @@
-Infamous-Teacher-Quotes
+Infamous Teacher Quotes
 =======================
 
 ## Petch
